@@ -1,2 +1,2 @@
 
-![ScreenShot](https://{https://postimg.cc/TKQtKPhg})
+![ScreenShot](https://postimg.cc/TKQtKPhg)
